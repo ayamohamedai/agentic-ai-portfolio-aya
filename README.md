@@ -172,8 +172,7 @@
 
 Aya Mohamed AI Prompt Engineer – Expert in advanced prompt design Experienced in offline AI systems Innovator in creating secure and executable AI solutions
 
-🔗 ملف LinkedIn الشخصي | LinkedIn Profile
-
+🔗 ملف LinkedIn الشخصي |linkedin.com/in/aya-mohamed-aiprompt-specialist-engineer
 🚫 حقوق الملكية | Intellectual Property:
 
 هذا المشروع هو ملكية فكرية حصرية لـ آية محمد لا يُسمح بنسخه أو تعديله أو استخدام أي جزء منه أو إعادة نشره دون إذن كتابي رسمي. جميع الحقوق محفوظة بالكامل.
